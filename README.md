@@ -11,4 +11,4 @@
 
 
 
-![я](img/P6180026.jpg)
+![я](C:\Users\Home\Desktop\GIT\homeworks-2.1\img\P6180026.jpg)
