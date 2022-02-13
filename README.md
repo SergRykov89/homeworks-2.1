@@ -11,4 +11,4 @@
 
 
 
-![я](https://sun9-85.userapi.com/impf/c840722/v840722279/2843a/kWwLHaxzX7E.jpg?size=1280x853&quality=96&sign=569e2c58a633909eb62e29fd44a7cd7e&type=album)
+![я](img/P6180026.jpg)
